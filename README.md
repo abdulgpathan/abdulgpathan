@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analyst Role
 - 🌱 I’m currently learning SPSS
 - 💞️ I’m looking to collaborate on Performance marketing
-- 📫 Call me on +971559176776
+- 📫 Call me on +971529358852
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...It's Thinking.
 
